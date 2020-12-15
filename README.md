@@ -1,6 +1,6 @@
 ### Hey peeps!👋
 
-A non-IT HR Generalist turned Full Stack Developer at Codaisseur Academy. Currently on a lookout for a opportunity to learn and grow as a developer. 
+A non-IT HR Generalist turned Full Stack Developer at Codaisseur Academy. Eagerly looking forward to working in a new and evolving environment with constant learning. 
 
 You can find me here 📫 - [LinkedIn](https://www.linkedin.com/in/vishaka-hegde/)
 
